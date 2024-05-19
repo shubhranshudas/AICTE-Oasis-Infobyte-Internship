@@ -12,4 +12,4 @@ I’ve compiled all these works into an 𝑨𝒏𝒊𝒎𝒂𝒕𝒆𝒅 𝑷�
 
 A big thank you to Oasis Infobyte for this incredible learning experience. 🙏
 
-hashtag#OASISINFOBYTE hashtag#Internship hashtag#GraphicDesign hashtag#DesignCommunity hashtag#StudentEngagement hashtag#LeadershipDevelopment hashtag#CareerGrowth hashtag#CreativeJourney hashtag#ProfessionalDevelopment hashtag#LearningExperience
+#OASISINFOBYTE #Internship #GraphicDesign #DesignCommunity #StudentEngagement #LeadershipDevelopment #CareerGrowth #CreativeJourney #ProfessionalDevelopment #LearningExperience
